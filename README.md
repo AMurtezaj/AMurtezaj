@@ -24,7 +24,7 @@
 
 ## 📬 Let’s Connect
 
-- 🌐 [LinkedIn](https://www.linkedin.com/in/altinmurtezaj/)  
+- 🌐 [LinkedIn]([https://www.linkedin.com/in/altinmurtezaj/](https://www.linkedin.com/in/altin-murtezaj-629315220/))  
 - 📫 Email: altinmurtezaj2002@gmail.com  
 
 ---
